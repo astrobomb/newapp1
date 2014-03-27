@@ -4,5 +4,6 @@
 
 ## Chapter 1
 
-One day in Hyrule...
+One day in Hyrule... there was a guy named Link. 
+
 
